@@ -1,1 +1,1 @@
-**This is my recipe on how to make tea with tulsi/Indian basil in it**
+**This is my recipe on how to make tea with _tulsi_/Indian basil in it**
